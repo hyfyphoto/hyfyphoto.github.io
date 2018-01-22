@@ -1,3 +1,0 @@
-//
-// Twitter: @mattsince87
-//
